@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jasiwow
 - 👀 I’m interested in animals.
-- 🌱 I’m currently learning how to play guitar.
+- 🌱 I’m currently learning how to dance.
 - 💞️ I’m looking to collaborate on a pet shelter.
 - 📫 How to reach me at jaslinp641@gmail.com
 - 😄 Pronouns: she/her
